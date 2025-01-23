@@ -1,1 +1,1 @@
-This project wonn't update.
+This item will not be updated
